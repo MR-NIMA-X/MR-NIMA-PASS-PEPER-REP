@@ -22,4 +22,12 @@ MR NIMA PASSPEPER REPO DON'T COPPY THIS WITHUOUT PERMISION 🤌
 # 
 # 
 # 
-[![අඩෝ අඩෝ මෙතනට ටච් කරපන් ලොකුවට බලන්න [ (https://github.com/MR-NIMA-X/MR-NIMA-PASS-PEPER-REP/blob/main/Screenshot_20220428-192328_Samsung%20Internet.jpg)]
+
+<a href="https://github.com/MR-NIMA-X/MR-NIMA-PASS-PEPER-REP/blob/main/Screenshot_20220428-192328_Samsung%20Internet.jpg">අඩෝ අඩෝ ලොකුවට බලන්න මේක ඔබපන්</a>
+
+
+
+
+# 
+
+#
